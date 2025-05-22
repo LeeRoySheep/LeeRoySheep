@@ -1,6 +1,6 @@
 ## Hi there I am Lee Roy Stevenson alias Leroy 👋
 
-- 🔭 I’m currently working on ==Full Stack Developement, Software Devel. and AI programming==
+- 🔭 I’m currently working on ***Full Stack Developement, Software Devel. and AI programming***
 - 🌱 I’m currently learning Python to specialize as AI Engineer with Python and strong Java background.
 - 💬 Ask me about Anything just don't expect an answer, I might even give you one xD
 - 📫 How to reach me: Email me at lee-roy.stevenson@gmx.net
