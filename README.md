@@ -10,7 +10,7 @@
 - 😄 Pronouns: it
 - ⚡ Fun fact: Was working as legal ganja farmer in switzerland and been working as fire artist for several years
 - 🏥 Extraciriculms: Wokring as a personal assistance of physically disabled sudents, while studiing mathematics and computer science in Berlin.
-    Even now regulary helping refugees in squads and cooking at least 2 times a month.
+    Even now regulary helping refugees in squatts with cooking at least 2 times a month.
 
 - 🗣️ Speaking English and German by birth.    
    Learned to speak and understand French and Spanish,   
